@@ -1,0 +1,2 @@
+# thejournalistdj
+the journalist magazine
